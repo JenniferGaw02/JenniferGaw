@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @xxBatgirl7Xx
+- 👋 Hi, I’m Jennifer Gaw
 - 👀 I’m interested in comics, costume design, and circus!
 - 🌱 I’m currently learning design and 3D printing
 - 💞️ I’m looking to collaborate on anything
